@@ -1,0 +1,2 @@
+# script-bucin
+silahkan ambil
